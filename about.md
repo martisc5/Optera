@@ -16,9 +16,9 @@ insetto che si  può ritrovare in varie zone: desertiche,
 urbane, campi agricoli ma anche foreste tropicali. 
 Nonostante la loro dimensione di pochi millimetri
 hanno una grande funzione ecologica come
-decomposizione delle carogne, alla fertilizzazione del
+decomposizione delle carogne, La fertilizzazione del
 suolo e all'attivazione del ciclo dell'azoto.
-Il secondo animale Bakeneko che nella cultura giapponese
+Il secondo animale è il Bakeneko che nella cultura giapponese
 possono assumere due diversi significati:
 protettori di focolari oppure mutaformi in grando di
 manipolare i morti o l’energia spirituale. A livello simbolico
